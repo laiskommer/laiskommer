@@ -3,4 +3,4 @@
 _Me chamo Lais Kömmer_
 
 - sou estudante do ensino medio 
-- uso esse espao para minha organização
+- uso esse espaço para minha organização
